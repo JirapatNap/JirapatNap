@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Jirapat Napatchaiwong  Nickname:Phukao
+- 👀 I’m interested in coding, marketing, finance, and stock market.
+- 🌱 I’m currently studying at Mahidol University in Faculty of Information and Communication Technology.
+- 💞️ Aiming to be Cybersecurity.
+- 📫 Contact me via
+- Email:Phukao2548@gmail.com 
+- Del:092-794-1542
